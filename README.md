@@ -1,1 +1,1 @@
-our-team-profile
+안녕하세요 한수빈입니다
